@@ -1,1 +1,0 @@
-# fitur-tour-galicia-propuesta
